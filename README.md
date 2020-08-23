@@ -12,7 +12,7 @@
 
 ### Видео
 
-[Gameplay] Нету
+[Gameplay](https://youtu.be/eAE3dzduHJ8)
 
 
 ### Примечание
